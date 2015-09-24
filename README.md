@@ -1,6 +1,6 @@
 Simon's Stam Collection App
 ---
 
-#About
+#About Simons Stuff
 
-Stuff about Simon's Stamps here..
+Simons has been collecting stamps since 1981. He has a wide variety of expensive and exotic chinese stamp
