@@ -3,4 +3,4 @@ Simon's Stam Collection App
 
 #About
 
-Stuff about Simon's Stamps here..
+New York Times Raves this is the best collection.
